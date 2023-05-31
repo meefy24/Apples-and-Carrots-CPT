@@ -13,5 +13,6 @@ Created by Tara, Andy, and Caileigh.
   
   
   GAME 3: Farmer's Market (Tara)
+  Have her basket full of apples and carrots, then two empty baskets labelled for apples and carrots to sort produce into
   
   
